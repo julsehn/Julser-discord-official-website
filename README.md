@@ -7,3 +7,6 @@ Here it's useful to everyone to learn about all I can add here!
 Discord: @Julser
 
 Official email: [julsemail@8dymyj.onmicrosoft.com](mailto:julsemail@8dymyj.onmicrosoft.com)
+
+
+Official from Julser
